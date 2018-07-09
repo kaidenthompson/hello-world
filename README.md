@@ -1,2 +1,2 @@
 # hello-world
-y
+im gay
